@@ -26,4 +26,4 @@
 
 📫 **Contact me by**:
 - Email (kshitij.mahajan@utexas.edu)
-- [Linkedin](www.linkedin.com/in/kshitij-mahajan-)
+- [Linkedin](https://www.linkedin.com/in/kshitij-mahajan-)
